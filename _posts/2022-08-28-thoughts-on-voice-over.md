@@ -21,28 +21,33 @@ that you had to be in to be in the honor choir ('''girls''' had to be in the
 all-girls choir) the soprano section was like me and a bunch of 6th graders. In
 the honor choir itself (or maybe it was just my standard curricular choir, I'm
 not sure) I was also able to be a soprano/alto, and I was learning that part
-for the final concert of the year, along with a handful of '''other''' boys,
-until they decided that they wanted to go and just be tenors and I was the only
-'''boy''' left among the altos/sopranos (I know they're not one thing I just
-can't remember which one I was in specifically) and it felt really
-uncomfortable to me in a way I couldn't articulate, even though I loved, loved,
-loved singing high! And I was literally weighing my options, this feeling of
-uncomfortability about being feminine(? or something like that?) vs, and I
-literally remember thinking something like this, that this'll be the last
+for the final concert of the year, along with a handful of '''other''' boys.
+Until, they decided that they wanted to go and just be tenors, and I was the
+only '''boy''' left among the altos/sopranos (I know they're not one thing I
+just can't remember which one I was in specifically). And it felt really
+uncomfortable to me in a way I couldn't quite articulate, even though I loved,
+loved, loved singing high! And I was literally weighing my options, this
+feeling of uncomfortability about being feminine(? or something like that?) vs,
+and I literally remember thinking something like this, that this'll be the last
 chance I have to sing in this range that I love. And I ended up making the
-decision, and getting up without any notification to the director or anything
-and quietly moving to the tenor section of the risers.
+decision, and getting up without saying anything to the director and quietly
+moving to the tenor section of the risers, in front of everyone. He asks "oh,
+are you gonna be a tenor?" and I'm like, "yep". And I ended up being right
+about what I was thinking, that _was_ the last chance that I had to sing in a
+high range.
 
-Then in high school, the freshman choir is split by gender (or by alto/soprano
+Then in high school, the freshman choir was split by gender (or by alto/soprano
 / tenor/bass but like, you know) and I was held back at the end of the year
 for, not being able to harmonize well at that point? Something like that, I
 don't remember exactly. And so at the start of sophomore year, I'm maybe 2
 weeks into my gender existential crisis and I'm in a '''boy''''s choir. And I'm
-a tenor 1 (the tenor part that tends to sing the higher parts), and it like,
+a tenor 1 (the tenor part that tends to sing the higher parts), and like, it
 could be worse. I still really like singing, and I got used to singing tenor
 the year before without any gender baggage attached - though at that point I am
 realizing that I actually do have a _shitton_ of voice dysphoria, and am
-wanting to dig my larynx out of my throat with a spoon.
+wanting to dig my larynx out of my throat with a spoon. But it's not as bad
+when I'm singing, and I can at least do vocal warm-ups like an octave higher
+than the rest of the choir cause nobody can really notice.
 
 And then, at the start of 2nd semester, we do another round of voice tests. And
 the long-term substitute we had (cause the normal teacher was on paternity
