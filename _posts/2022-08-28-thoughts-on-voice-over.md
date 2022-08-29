@@ -1,6 +1,7 @@
 ---
 layout: post
 title: Thoughts on the piece Voice Over from This American Life
+description: On being a singer and transitioning.
 ---
 
 I caught this This American Life piece about a trans guy's experience with his
